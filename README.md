@@ -3,8 +3,8 @@
 
 #### Complete the following:
 
-### Name: 
-### UMKC Email: 
+### Name: Riley Connors
+### UMKC Email: rpczdb@umsystem.edu
 
 
 
